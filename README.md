@@ -5,7 +5,7 @@ Don't dm me asking for help this doesn't work anymore and is patched. Buy my new
 
 Sellix: https://optiboosts.sellix.io/
 
-Discord: discord.gg/OptiBoostsV2 
+Discord: https://discord.gg/OptiBoostsV2 
 
 Website: https://opti-boosts.xyz/
 
